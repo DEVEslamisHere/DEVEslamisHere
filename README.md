@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DEVEslamisHere
-- 👀 I’m interested in Computer Science
+- 👀 I’m interested in Computer Engineer
 - 🌱 I’m currently a high school student
 - 📫 Facebook: https://www.facebook.com/DEVEslamisHere
 
